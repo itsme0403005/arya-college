@@ -1,1 +1,1 @@
-# arya-college
+# arya college
